@@ -46,5 +46,3 @@ greatly increase it's **revenue in terms of money**!
 
 Choosing us now means benefiting from a team that aims
 to become a major reality in the industry.
-
-[https://github.com/Telamone](https://github.com/Telamone)
